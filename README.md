@@ -2,8 +2,7 @@
 
 ### Welcome to my profile, I'm Giovana 🤍
 
-
-![](https://tenor.com/bZrG8.gif)
+![](https://media.tenor.com/tJyK18R2CUMAAAAC/billie-eilish.gif)
 
 ### I'm learning with Alura
 ### U can contact me: 
